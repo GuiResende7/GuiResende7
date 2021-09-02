@@ -11,5 +11,5 @@ dentro de TI, buscando aprendizado em uma empresa de tecnologia e também aprend
 Sou muito curioso e ansioso para aprender, se algo me intriga e me interessa eu corro atrás!
 --------------------------------------------------------------------------------------------------
 - Contato:
-Instagram: @guigs.c7;
-Email: resende475@gmail.com;
+- Instagram: @guigs.c7
+- Email: resende475@gmail.com
